@@ -1,4 +1,4 @@
-# Future of Work 
+# Future of Work
 
 ## Do-to-Earn platform. 
 
